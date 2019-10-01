@@ -1,5 +1,3 @@
-# Khasiano Webb
-
 ## Career Objectives
 
 ## Current Projects
